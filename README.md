@@ -1,6 +1,6 @@
  <p align="center">
   <a href="https://im.ge/i/QQrGQM8">
-    <img src="https://i.im.ge/QQuuIqP/ChatGPT_Image_Sep_18_2026_10_09_23_PM.png" alt="ChatGPT Image Sep 18, 2026, 10 09 23 PM" /></a> 
+    <img src="https://raw.githubusercontent.com/ahmedh8-Ah/portfolio-Ahmed/main/GitHub%202.png" /></a> 
   </a>
 </p> 
 
