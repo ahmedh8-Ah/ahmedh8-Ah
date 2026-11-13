@@ -1,5 +1,4 @@
-<a href="https://yourimageshare.com/ib/gq3C6di8J3"><img src="https://yourimageshare.com/ib/gq3C6di8J3.png" alt="gq3C6di8J3" border="0"></a><br> <a href="https://yourimageshare.com/">
-
+<a href="https://im.ge/i/QQPAvsT"><img src="https://i.im.ge/QQPAvsT/Neon_Full_Stack_Developer_Banner.png" alt="Neon Full Stack Developer Banner" /></a>
 
 <!-- Profile Header -->
 <h1 align="center">Hi 👋, I'm Ahmed Hussain</h1>
